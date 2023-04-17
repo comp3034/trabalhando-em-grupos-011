@@ -10,3 +10,4 @@ E olha aonde eu pude chegar
 Sabe que eu tô em outro patamar
 Passei de Velar
 E o cachê tá igual do Neymar
+x
